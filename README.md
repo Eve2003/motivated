@@ -1,0 +1,2 @@
+# motivated
+strong minded
